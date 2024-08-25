@@ -1,5 +1,4 @@
 **my paws are big and soft as is my heart ♥**
-![](https://komarev.com/ghpvc/?username=pantheress)
 
 <!---
 pantheress/pantheress is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
